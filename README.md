@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kinhdoanhvn
-- 🌱 I’m admin https://kinhdoanhvn.com
+- 🌱 I’m admin https://kinhdoanhvn.com/
 - 💞️ I am looking to learn about SEO
 - 📫 To contact me please send vuhainam1969@gmail.com
 - ⚡ I am very happy to help you, thanks!
